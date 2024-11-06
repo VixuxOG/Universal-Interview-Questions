@@ -1,4 +1,4 @@
-# Your Ultimate Guide to Interview Questions
+# Universal Interview Questions
 
 #### Preparing for your next big interview? Look no further! Dive into these carefully curated sets of interview questions and answers, designed to help you shine in your interviews. Get ready to impress with your knowledge!
 
